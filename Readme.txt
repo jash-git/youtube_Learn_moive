@@ -4,3 +4,5 @@
 	http://www.appledaily.com.tw/realtimenews/article/new/20170610/1136458/
 03.豆漿配一物，身體毒素全清掉了！養顏減肥效果超強，女生一定要學哦！便祕也治好了！
 	https://www.youtube.com/watch?v=T5IPqf8W1Fk
+04.google翻譯 下載mp3
+https://www.youtube.com/watch?v=rYuYdWc2XBg	
