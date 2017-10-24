@@ -12,3 +12,7 @@
 	https://www.youtube.com/watch?v=OfivOl2nUw0	
 07.《生火不用打火機！》 │ 酷酷兄弟 生活大爆炸
 	https://www.youtube.com/watch?v=0TjyWp6MhcQ
+08.(小陳世界) 喝水時加入了它，2個禮拜，水桶腰不見了，大腿也瘦了一圈！	
+	https://www.youtube.com/watch?v=KHomC6Ta4mc
+09.愛吃這十種食物的人，少生病，易長壽！
+	https://www.youtube.com/watch?v=dL4ewPctByE
