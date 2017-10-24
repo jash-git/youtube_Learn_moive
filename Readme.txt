@@ -16,3 +16,6 @@
 	https://www.youtube.com/watch?v=KHomC6Ta4mc
 09.愛吃這十種食物的人，少生病，易長壽！
 	https://www.youtube.com/watch?v=dL4ewPctByE
+10.洋蔥放進這裡泡一夜，祛斑抗皺又祛痘！絕不反彈，臉上的斑點終於有救了！
+	https://www.youtube.com/watch?v=IdIt5_Q7r3w	
+	
